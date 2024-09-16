@@ -1,1 +1,1 @@
-# Site-de-assinatura-de-conteudo-Gaame-Arena
+# Site-de-assinatura-de-conteudo-Game-Arena
